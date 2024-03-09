@@ -1,0 +1,1 @@
+CryptoTrends brings you the hottest cryptocurrency trend analysis. Whether you're a long-term holder or short-term trader, our trend reports will help you make informed investment decisions.
